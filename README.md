@@ -4,7 +4,7 @@
 - 💞️ I’m looking for fwends
 - 📫 My email is a way to reach me
 - 😄 Pronouns: xe/xem/xyr or Nya/Nyan/Nyaself im xenogender
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: my fav Pokémon is Dusk Mane Necrozma
 
 <!---
 Ceo-Of-Pokemon/Ceo-Of-Pokemon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
